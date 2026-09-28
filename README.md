@@ -1,2 +1,2 @@
 # kahin
-CV. Kahin Graha Jaya
+Kahin Graha Jaya
